@@ -1,1 +1,1 @@
-# PRO-C105
+# WHJr. Pro-C105 by Rishita Pradhan
